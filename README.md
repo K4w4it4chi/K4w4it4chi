@@ -26,9 +26,11 @@ na área de cyber segurança
 porém de tudo um pouco 
 
 Nome : Lucas
+
 idade: 21                     ![boku-no-hero-academia](https://user-images.githubusercontent.com/122295876/212202269-bcf1e251-7a40-4112-bb75-3f330d63a392.gif)
 
-Gemeos 
+Signo:Gemeos 
+
 nick nos jogos: Asmund
 
 
